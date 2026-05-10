@@ -1,4 +1,6 @@
-![image alt](https://files.catbox.moe/jd8bxg.png)
+<p align="center">
+  <img width="460" height="300" src="https://files.catbox.moe/jd8bxg.png/460/300">
+</p>
 
 <!--
 **tamonsbside/tamonsbside** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
