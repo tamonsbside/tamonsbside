@@ -1,6 +1,6 @@
 
 
- <p align="center">!
+ <p align="center">
    <img src="https://files.catbox.moe/jd8bxg.png"
    [image alt](https://files.catbox.moe/jd8bxg.png)
     </p>
