@@ -16,7 +16,7 @@ $${\color{#6f6065}⌞ “isㅤthisㅤreallyㅤtheㅤsameㅤperson?ㅤisㅤthis�
     </p>
 
    <p align="center">
-$${\color{#6f4953}wipㅤᓚ₍ ^. .^₎}$$
+$${\color{#6f4953}wipㅤᓚ₍ ^. .^₎ㅤimㅤstillㅤfiguringㅤoutㅤhowㅤreadmesㅤworkㅤok.}$$
     </p>
     
 
