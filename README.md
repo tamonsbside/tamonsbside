@@ -1,6 +1,4 @@
- <p align="center">
-   <img src="https://files.catbox.moe/6dpkfd.png" width="635">
-    </p>
+
     
  <p align="center">
 $${\color{#6f6065}⌞ ㅤㅤ“stayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤiㅤneedㅤyou.” ㅤㅤ⌝}$$
@@ -20,9 +18,7 @@ $${\color{#6f4953}wipㅤᓚ₍ ^. .^₎ㅤimㅤstillㅤfiguringㅤoutㅤhowㅤre
     </p>
     
 
-   <p align="center">
-   <img src="https://files.catbox.moe/6dpkfd.png" width="635">
-    </p>
+
 
 <!--
 **tamonsbside/tamonsbside** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
