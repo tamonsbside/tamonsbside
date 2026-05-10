@@ -1,8 +1,27 @@
-
-
+ <p align="center">
+   <img src="https://files.catbox.moe/6dpkfd.png" width="635">
+    </p>
+    
+ <p align="center">
+$${\color{#6f6065}⌞ ㅤㅤ“stayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤiㅤneedㅤyou.” ㅤㅤ⌝}$$
+    </p>
+    
  <p align="center">
    <img src="https://files.catbox.moe/jd8bxg.png"
    [image alt](https://files.catbox.moe/jd8bxg.png)
+    </p>
+
+ <p align="center">
+$${\color{#6f6065}⌞ “isㅤthisㅤreallyㅤtheㅤsameㅤperson?ㅤisㅤthisㅤtheㅤfamousㅤtamon-kun?”ㅤ⌝}$$
+    </p>
+
+   <p align="center">
+$${\color{#6f6065}wipㅤᓚ₍ ^. .^₎}$$
+    </p>
+    
+
+   <p align="center">
+   <img src="https://files.catbox.moe/6dpkfd.png" width="635">
     </p>
 
 <!--
