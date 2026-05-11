@@ -1,5 +1,5 @@
  <p align="center">
-$${\color{#6f6065}⌞ ㅤㅤ“stayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤiㅤneedㅤyou.” ㅤㅤ⌝}$$
+$${\color{#6f6065}⌞ ㅤㅤ“ㅤStayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤiㅤneedㅤyou.ㅤ” ㅤㅤ⌝}$$
     </p>
 
     
@@ -9,8 +9,7 @@ $${\color{#6f6065}⌞ ㅤㅤ“stayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤi�
     </p>
 
 
-   <p align="center">
-$${\color{#525460}LUKEㅤ/ㅤEIJIㅤ/ᐠㅤ-ㅤ˕ㅤ-マㅤㅤHEHIM}$$
+$${\color{#525460}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#667270}\text{ /ᐠㅤ-ㅤ˕ㅤ-マ }}$$ $${\color{#6f6065}\text{ heㅤ/ㅤhim }}$$
     
 
 
