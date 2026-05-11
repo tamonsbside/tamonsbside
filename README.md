@@ -1,21 +1,16 @@
-
-    
  <p align="center">
 $${\color{#6f6065}⌞ ㅤㅤ“stayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤiㅤneedㅤyou.” ㅤㅤ⌝}$$
     </p>
+
     
  <p align="center">
-   <img src="https://files.catbox.moe/jd8bxg.png"
-   [image alt](https://files.catbox.moe/jd8bxg.png)
+   <img src="https://files.catbox.moe/uyc8r3.png"
+   [image alt](https://files.catbox.moe/uyc8r3.png)
     </p>
 
- <p align="center">
-$${\color{#6f6065}⌞ “isㅤthisㅤreallyㅤtheㅤsameㅤperson?ㅤisㅤthisㅤtheㅤfamousㅤtamon-kun?”ㅤ⌝}$$
-    </p>
 
    <p align="center">
-$${\color{#6f4953}wipㅤᓚ₍ ^. .^₎ㅤimㅤstillㅤfiguringㅤoutㅤhowㅤreadmesㅤworkㅤok.}$$
-    </p>
+$${\color{#525460}LUKEㅤ/ㅤEIJIㅤ/ᐠㅤ-ㅤ˕ㅤ-マㅤㅤHEHIM}$$
     
 
 
