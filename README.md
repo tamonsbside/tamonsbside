@@ -1,7 +1,5 @@
- <p align="center">
-$${\color{#6f6065}⌞ ㅤㅤ“ㅤStayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.ㅤIㅤneedㅤyou.ㅤ” ㅤㅤ⌝}$$
-    </p>
 
+$${\color{#525460}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#667270}\text{ /ᐠㅤ-ㅤ˕ㅤ-マ }}$$ $${\color{#6f6065}\text{ heㅤ/ㅤhim }}$$
     
  <p align="center">
    <img src="https://files.catbox.moe/uyc8r3.png"
@@ -9,7 +7,9 @@ $${\color{#6f6065}⌞ ㅤㅤ“ㅤStayㅤbyㅤmyㅤsideㅤandㅤbeㅤmyㅤfan.�
     </p>
 
 
-$${\color{#525460}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#667270}\text{ /ᐠㅤ-ㅤ˕ㅤ-マ }}$$ $${\color{#6f6065}\text{ heㅤ/ㅤhim }}$$
+ <p align="center">
+<a href="https://purpled.atabook.org/">atabook</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">rentry</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">matching</a>
+    </p>
     
 
 
