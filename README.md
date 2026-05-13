@@ -8,7 +8,7 @@ $${\color{#525460}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#667270}\text{ /ᐠㅤ-�
 
 
  <p align="center">
-<a href="https://purpled.atabook.org/">atabook</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">rentry</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">matching</a>
+<a href="https://purpled.atabook.org/">atabook</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">rentry</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">ma gang #WEUP</a>
     </p>
     
 
