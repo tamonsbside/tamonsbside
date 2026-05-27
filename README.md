@@ -1,14 +1,14 @@
 
-$${\color{#525460}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#667270}\text{ /ᐠㅤ-ㅤ˕ㅤ-マ }}$$ $${\color{#6f6065}\text{ heㅤ/ㅤhim }}$$
+$${\color{#5351b2}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#4c66b1}\text{ /ᐠㅤ-ㅤ˕ㅤ-マ }}$$ $${\color{#609cce}\text{ heㅤhim }}$$
     
  <p align="center">
-   <img src="https://files.catbox.moe/uyc8r3.png"
-   [image alt](https://files.catbox.moe/uyc8r3.png)
+   <img src="https://files.catbox.moe/02jyjf.png"
+   [image alt](https://files.catbox.moe/02jyjf.png)
     </p>
 
 
  <p align="center">
-<a href="https://purpled.atabook.org/">atabook</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">rentry</a>ㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">ma gang #WEUP</a>
+<a href="https://purpled.atabook.org/">𝒜</a>tabookㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">ℛ</a>entryㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">ℳ</a>atching
     </p>
 
 
