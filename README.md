@@ -11,6 +11,10 @@ $${\color{#5351b2}\text{ LUKEㅤ/ㅤEIJI }}$$ $${\color{#4c66b1}\text{ /ᐠㅤ-�
 <a href="https://purpled.atabook.org/">𝒜</a>tabookㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">ℛ</a>entryㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">ℳ</a>atching
     </p>
 
+ <p align="center">
+thank <a href="https://github.com/title-town">𝓎ou!</a
+        </p>
+
 
 
 <!--
