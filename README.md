@@ -10,7 +10,7 @@
     
 
  <p align="center">
-thank <a href="https://github.com/title-town">𝓎ou!</a
+ponytown's <a href="https://github.com/title-town">purpled!</a
         </p>
 
 
