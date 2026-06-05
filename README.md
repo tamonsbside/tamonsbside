@@ -1,5 +1,5 @@
  <p align="center">
-<a href="https://purpled.atabook.org/">𝒜</a>tabookㅤ𓂃𓂃ㅤ<a href="https://rentry.co/poisonedsoil/">ℛ</a>entryㅤ𓂃𓂃ㅤ<a href="https://rentry.co/generationofmiracIes">ℳ</a>atching
+<a href="https://purpled.atabook.org/">𝒜</a>tabookㅤㅤ<a href="https://rentry.co/poisonedsoil/">ℛ</a>entryㅤㅤ<a href="https://rentry.co/generationofmiracIes">ℳ</a>atching
     </p>
 
 
