@@ -4,8 +4,8 @@
 
 
 <p align="center">
-   <img src="https://files.catbox.moe/02jyjf.png"
-   [image alt](https://files.catbox.moe/02jyjf.png)
+   <img src="https://files.catbox.moe/a17zub.png"
+   [image alt](https://files.catbox.moe/a17zub.png)
     </p>
 
     
