@@ -11,7 +11,7 @@
     
 
  <p align="center">
-ponytown's <a href="https://github.com/title-town">purpled</a
+ <a href="https://github.com/title-town">@title-town</a
         </p>
 
 
