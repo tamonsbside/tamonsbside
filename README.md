@@ -116,10 +116,14 @@ i dont have much of a dni, though i just wish for you to iw(e)c when interacting
   <br>
   <br>
   thats really it bruh. ok well pedophiles zoophiles proshhippers etc etc u get my point dni
-    <br>
+ 
+  <br>
+ 
   
+
+      
       
   <br>
 <img width="400" height="400" alt="Screenshot 2026-08-17 at 15 00 49" src="https://github.com/user-attachments/assets/7c95b325-a739-4d53-8a33-63ef7da9bf6b" />
 
-@mgcoi in  + @tamonsbside = ♡
+@mgcoiin  + @tamonsbside = ♡
