@@ -45,7 +45,7 @@
 <summary>𝒾nfo</summary>
 any prns [except it] but he/him is preferred! cute lil ambivert owo also i am a yumeshipper. nonsharing with rukawa kaede and selective sharing with karma akabane and itoshi rin ^^ please int with me if we have similar interests... my main fandoms atm are spider-man, and blue lock !!! i only ever play rbolox now tbf laik whos downloading 50gb for the new genshin update. everyone? ok nvm. i tend to speak before thinking so pls tell me if anything i say makes you uncomfortable. often seen using the same skin lolz
 <br>
-i have trouble interacting first or iniating things, and i often reply late due to being offtab or afk or maybe i wont reply at all soz lols.... ..  i kin chuuya, tamaki, akutagawa, skylar, yatora yaguchi, peter parker, rudo, rin, etc etc that lot should tell you enuff about me o_0
+i have trouble interacting first or iniating things, and i often reply late due to being offtab or afk or maybe i wont reply at all soz lols.... ..  i kin chuuya, kise, sakura haruka, tamaki, akutagawa, skylar, yatora yaguchi, peter parker, rudo, rin, etc etc that lot should tell you enuff about me o_0
 </details>
     </td>
   </tr>
