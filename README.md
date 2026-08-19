@@ -39,7 +39,7 @@
 
 ‎ ‎ ${\textsf{\color{#008B8B} 𝓛UKE}}$‎ ‎ ${\textsf{\color{#D2B48C} 𝓔IJI}}$
      <br>
-     ‎ 𝒾ndo . single ㅤ 𝒶ndrosexual / questioning
+     ‎ 𝒾ndo . single ㅤ 𝒶ndrosexual
      <br>
      <details>
 <summary>𝒾nfo</summary>
