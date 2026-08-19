@@ -39,7 +39,7 @@
 
 ‎ ‎ ${\textsf{\color{#008B8B} 𝓛UKE}}$‎ ‎ ${\textsf{\color{#D2B48C} 𝓔IJI}}$
      <br>
-     ‎ indo . single ㅤ androsxual 
+     ‎ 𝒾ndo . single ㅤ 𝒶ndrosexual / questioning
      <br>
      <details>
 <summary>𝒾nfo</summary>
@@ -86,7 +86,7 @@ luci, kenny, long   <br>
    </p>
 
 
-　[*𝓅ronounsp*](https://pronouns.page/@1985)
+　[*𝒹irectory*](https://rentry.co/WlNDBREAKER)
 　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　 [*𝒶tabook*](https://purpled.atabook.org/)  
 </p>　　 　
 
