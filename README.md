@@ -77,6 +77,26 @@ luci, kenny, long   <br>
 </table>
 <br>
 
+  <tr>
+    <td>
+      <details>
+<summary>𝗪𝗔𝗟𝗟 𝗢𝗙 𝗦𝗛𝗔𝗠𝗘 𝗟𝗠𝗔𝗢𝗔𝗢 </summary>
+<a href="https://files.catbox.moe/6dh4f8.jpeg" target="_blank">
+  <img src="https://files.catbox.moe/6dh4f8.jpeg" alt="Button Description" width="250" height="auto" />
+<a href="https://files.catbox.moe/78ujmt.jpeg" target="_blank">
+  <img src="https://files.catbox.moe/78ujmt.jpeg" alt="Button Description" width="200" height="auto" />
+  </a>
+  <br />
+  <span>WHOOO IS U FEELING LIKE LMAAOAOPP pt players get creative challenge GOGO!!!! </span>
+</div> 
+</a> ‎<br>
+
+</details>
+    </td>
+  </tr>
+</table>
+<br>
+
 <img width="150" height="100" alt="skyrus" src="https://github.com/user-attachments/assets/f516e693-bc35-40f2-9282-f24c857d5b2d" />
 <img width="150" height="100" alt="sky" src="https://github.com/user-attachments/assets/6c98f29a-e5dd-485b-8252-f35b5314e2f7" />
 
