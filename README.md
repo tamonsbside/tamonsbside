@@ -87,7 +87,8 @@ luci, kenny, long   <br>
   <img src="https://files.catbox.moe/78ujmt.jpeg" alt="Button Description" width="200" height="auto" />
   </a>
   <br />
-  <span>WHOOO IS U FEELING LIKE LMAAOAOPP pt players get creative challenge GOGO!!!! </span>
+  <span>WHOOO IS U FEELING LIKE LMAAOAOPP pt players get creative challenge GOGO!!!! <br>
+  😂😂😂😂😂 ill say this one more time dont copy my skins thx if ure dat jealous over pixels dni </span>
 </div> 
 </a> ‎<br>
 
