@@ -108,7 +108,7 @@ luci, kenny, long   <br>
 
 
 　[*𝒹irectory*](https://rentry.co/WlNDBREAKER)
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　 [*𝒶tabook*](https://purpled.atabook.org/)  
+　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　 [*𝓅ronounsp*](https://en.pronouns.page/@1985)  
 </p>　　 　
 
 </a>‎
