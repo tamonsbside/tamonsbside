@@ -133,10 +133,10 @@ luci, kenny, long   <br>
 i dont have much of a dni, though i just wish for you to iw(e)c when interacting with me. i dont rlly care about this part unless youre actually weird and ill just block or hide you idontcar e
     <br>
   <br>
-  though i would also like to note for voidsharing yumeshippers to limit interactions with me. u guys are weird or creepy
+  though i would also like to note for voidsharing yumeshippers to limit interactions with me. i knwo im nonsharing myself but im not as pressed as u guys. u guys are weird or creepy
   <br>
   <br>
-  thats really it bruh. ok well pedophiles zoophiles proshhippers etc etc u get my point dni
+  thats really it bruh. ok well pedophiles zoophiles etc etc u get my point dni
  
   <br>
  
