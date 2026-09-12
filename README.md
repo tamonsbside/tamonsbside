@@ -88,7 +88,7 @@ luci, kenny, long   <br>
   </a>
   <br />
   <span>WHOOO IS U FEELING LIKE LMAAOAOPP pt players get creative challenge GOGO!!!! <br>
-  😂😂😂😂😂 ill say this one more time dont copy my skins thx if ure dat jealous over pixels dni </span>
+  😂😂😂😂😂 ill say this one more time dont copy my skins or take inspo or put my shading to another tint. thx. if ure dat jealous over pixels dni </span>
 </div> 
 </a> ‎<br>
 
