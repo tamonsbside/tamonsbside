@@ -65,10 +65,8 @@ i have trouble interacting first or iniating things, and i often reply late due 
 <summary>ℱriends ♡ </summary>
 NOT IN ORDER <br>
 al, micha, anne <br>
-saeko, 13, cj, seb <br>
-luci, kenny, long   <br> 
-‎hao, raymond gc, sam ‎<br>
--3.14159 braincells gc, max, milk ‎<br>
+sae, 13, spoon <br>
+milk, kenny, long   <br> 
      ask to be added ^_^ ‎<br>
  
 </details>
