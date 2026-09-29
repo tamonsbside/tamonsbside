@@ -82,12 +82,12 @@ dork trio <3 [ cat & dime ]          <br>
 <summary>𝗪𝗔𝗟𝗟 𝗢𝗙 𝗦𝗛𝗔𝗠𝗘 𝗟𝗠𝗔𝗢𝗔𝗢 </summary>
 <a href="https://files.catbox.moe/6dh4f8.jpeg" target="_blank">
   <img src="https://files.catbox.moe/6dh4f8.jpeg" alt="Button Description" width="250" height="auto" />
-<a href="https://files.catbox.moe/78ujmt.jpeg" target="_blank">
-  <img src="https://files.catbox.moe/78ujmt.jpeg" alt="Button Description" width="200" height="auto" />
+<a href="https://files.catbox.moe/1tdk5s.png" target="_blank">
+  <img src="https://files.catbox.moe/1tdk5s.png" alt="Button Description" width="350" height="auto" />
   </a>
   <br />
-  <span>WHOOO IS U FEELING LIKE LMAAOAOPP pt players get creative challenge GOGO!!!! <br>
-  😂😂😂😂😂 ill say this one more time dont copy my skins or take inspo or put my shading to another tint. thx. if ure dat jealous over pixels dni </span>
+  <span>WHOOO ARE YGS FEELING LIKE LMAAOAOPP 2 diff people btw pt players get creative challenge GOGO!!!! <br>
+  hi @xzai-hadrian-19 😂😂😂😂😂 ill say this one more time dont copy my skins or take inspo or put my shading to another tint. thx. if ure dat jealous over pixels dni </span>
 </div> 
 </a> ‎<br>
 
