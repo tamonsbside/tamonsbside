@@ -65,9 +65,9 @@ i have trouble interacting first or iniating things, and i often reply late due 
 <summary>ℱriends ♡ </summary>
 NOT IN ORDER <br>
 al, micha, anne <br>
-sae, 13, spoon <br>
+sae, cj, 13, spoon <br>
 milk, kenny, long   <br> 
-dork trio <3 [ cat & dime ]          <br> 
+dork trio <3 [ cat & dime hai ]          <br> 
      ask to be added ^_^ ‎<br>
  
 </details>
