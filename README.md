@@ -106,8 +106,8 @@ dork trio <3 [ cat & dime hai ]          <br>
    </p>
 
 
-　[*𝒹irectory*](https://rentry.co/WlNDBREAKER)
-　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　 [*𝓅ronounsp*](https://en.pronouns.page/@1985)  
+　[*𝒹irectory*](https://rentry.co/WlNDBREAKER)　　 　　　 　　 　　　 　[*𝓎ume gallery*](https://rushirocanon.straw.page/)　　 　　　 　　　 　　　 　[*𝓅ronounsp*](https://en.pronouns.page/@1985)  
+
 </p>　　 　
 
 </a>‎
