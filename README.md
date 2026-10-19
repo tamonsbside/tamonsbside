@@ -46,6 +46,7 @@
 any prns [except it] but he/him is preferred! cute lil introvert owo also i am a yumeshipper. nonsharing with rukawa kaede and selective sharing with karma akabane and itoshi rin ^^ please int with me if we have similar interests... my main fandoms atm are south park, slam dunk, yttd, and blue lock !!! i only ever play rbolox now tbf laik whos downloading 50gb for the new genshin update. everyone? ok nvm. i tend to speak before thinking so pls tell me if anything i say makes you uncomfortable. often seen using the same skin lolz
 <br>
 i have trouble interacting first or iniating things, and i often reply late due to being offtab or afk or maybe i wont reply at all soz lols.... .. i also get ticked off by little things so dont be surprised if u see me in a bad mood often or sometimes. i kin yoshiki, nagi, chuuya, kise, sakura haruka, tamaki, akutagawa, luke, skylar, yatora yaguchi, peter parker, rudo, rin, etc etc that lot should tell you enuff about me o_0
+whenever im testing out a style, lmk if it looks similar to yours!!
 </details>
     </td>
   </tr>
