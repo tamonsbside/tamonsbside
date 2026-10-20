@@ -47,7 +47,7 @@ any prns [except it] but he/him is preferred! cute lil introvert owo also i am a
 <br>
 i have trouble interacting first or iniating things, and i often reply late due to being offtab or afk or maybe i wont reply at all soz lols.... .. i also get ticked off by little things so dont be surprised if u see me in a bad mood often or sometimes. i kin yoshiki, nagi, chuuya, kise, sakura haruka, tamaki, akutagawa, luke, skylar, yatora yaguchi, peter parker, rudo, rin, etc etc that lot should tell you enuff about me o_0
 <br>
-whenever im testing out a style, lmk if it looks similar to yours!!
+whenever im testing out a style, lmk if it looks similar to yours!! . psst... gift me skins of my f/os.... i will give u a big FAt kiss
 </details>
     </td>
   </tr>
