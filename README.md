@@ -110,7 +110,7 @@ dork trio <3 [ cat & dime hai ]          <br>
    </p>
 
 
-　[*𝒹irectory*](https://rentry.co/WlNDBREAKER)　　 　　　 　　 　　　 　[*𝓎ume gallery*](https://rushirocanon.straw.page/)　　 　　　 　　　 　　　 　[*𝓅ronounsp*](https://en.pronouns.page/@1985)  
+　[*𝓇entry*](https://rentry.co/ALOClEL)　　 　　　 　　 　　　 　　　 　　　 　　　 　　　 　[*𝓅ronounsp*](https://en.pronouns.page/@1985)  
 
 </p>　　 　
 
@@ -140,7 +140,7 @@ i dont have much of a dni, though i just wish for you to iw(e)c when interacting
   <br>
   <br>
   thats really it bruh. ok well pedophiles zoophiles etc etc u get my point dni
- 
+
   <br>
  
   
